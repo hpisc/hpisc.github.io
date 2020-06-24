@@ -7,3 +7,5 @@ Lathgertha (auch Ladgerda, Ladgertha oder Lagertha) war nach den Schilderungen d
 * Schlüsselperson
 * Kriegserfahren
 * Führernatur
+
+> Du kannst mich nicht töten, selbst wenn Du es 100 Jahre lang versuchst..
