@@ -9,3 +9,5 @@ Lathgertha (auch Ladgerda, Ladgertha oder Lagertha) war nach den Schilderungen d
 * Führernatur
 
 > Du kannst mich nicht töten, selbst wenn Du es 100 Jahre lang versuchst..
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/7/7f/Lathgertha_by_Morris_Meredith_Williams.png/800px-Lathgertha_by_Morris_Meredith_Williams.png"/>
